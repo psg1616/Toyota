@@ -43,7 +43,8 @@
   - 기술과 윤리의 통합을 통해 도시와 국가를 정렬시키는 시스템 설계자  
   - 복음 기반 사상 + MLCC 기반 언어·질서 구조화  
 
-> 📧 Contact: [psg1616@gmail.com]  
+> 📧 Contact: [psg1616@gmail.com]
+> 요약자료(PDF, Notion 등)는 요청 시 제공됩니다. 
 
 ---
 
